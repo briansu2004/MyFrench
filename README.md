@@ -63,3 +63,36 @@ My French
 ![](image/README/1652532397877.png)
 
 ![](image/README/1652532530749.png)
+
+### 7
+
+![](image/README/1653706061176.png)
+
+![](image/README/1653706192286.png)
+
+![](image/README/1653706266328.png)
+
+![](image/README/1653706320346.png)
+
+![](image/README/1653706343626.png)
+
+### 8
+
+![](image/README/1653706545450.png)
+
+![](image/README/1653706638690.png)
+
+![](image/README/1653706662081.png)
+
+![](image/README/1653706713022.png)
+
+![](image/README/1653706768184.png)
+
+![](image/README/1653706804127.png)
+
+![](image/README/1653706834952.png)
+
+![](image/README/1653706865104.png)
+
+
+
