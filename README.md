@@ -342,7 +342,32 @@ My French
 
 ![](image/README/1654531495781.png)
 
+### 32
 
+![](image/README/1654531684392.png)
 
+![](image/README/1654531706199.png)
 
+![](image/README/1654531727077.png)
 
+![](image/README/1654531747517.png)
+
+![](image/README/1654531808808.png)
+
+![](image/README/1654531829073.png)
+
+![](image/README/1654531859163.png)
+
+![](image/README/1654531917698.png)
+
+![](image/README/1654531982110.png)
+
+![](image/README/1654532015042.png)
+
+![](image/README/1654532032551.png)
+
+![](image/README/1654532059127.png)
+
+![](image/README/1654532125293.png)
+
+### 33
